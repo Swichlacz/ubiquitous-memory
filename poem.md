@@ -1,4 +1,4 @@
-# _The Outlaw_ by *Bliss Carman (William)*
+# __The Outlaw__ by *Bliss Carman (William)*
 
     Oh, let my lord laugh in his halls
     When he the tale shall tell!
